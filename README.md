@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RogerMarcoHernandezUOC
+- 👀 I’m interested in OS development
+- ⚡ Fun fact: Ensaïmada
